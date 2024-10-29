@@ -1,4 +1,4 @@
-# For Fun :link: https://Tech-yang.github.io/fun 
+# For Fun :link: https://Tech-yang.github.io/fun/ 
 ### :page_facing_up: [1](https://Tech-yang.github.io/fun/tag.html) 
 ### :speech_balloon: 0 
 ### :hibiscus: 176 
